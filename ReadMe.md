@@ -1,3 +1,4 @@
+P.S. Most of my projects are privated cuz they're not good enough yet
 
 ## Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/shuban_863) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:006shuban@gmail.com) 
